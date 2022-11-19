@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **benohodzic36@gmail.com**
 
-- ⚡ Fun fact **Cash flow**
+- ⚡ Fun fact **Me == Cash flow**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
